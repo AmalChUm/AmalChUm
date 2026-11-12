@@ -1,4 +1,4 @@
-# Hi, I'm AmalChUm
+# Hi, I'm Amal Chaaben!
 
 Welcome to my GitHub profile.
 
